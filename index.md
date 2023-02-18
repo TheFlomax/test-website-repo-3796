@@ -1,6 +1,6 @@
 ![Logo LCDS](https://shelter.moe/system/accounts/headers/109/840/972/378/027/638/original/15f3bc52e9803e1d.jpg)
 
-##C'est quoi La Clé des Shop ?
+## C'est quoi La Clé des Shop ?
 
 👨‍🏫 La Clé des Shops a pour but de vous présenter des jeux que vous pouvez/pourrez réclamer. Et ça se divise en 2 émissions mensuelles le samedi à 22h:
 
