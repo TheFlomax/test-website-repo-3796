@@ -27,3 +27,9 @@ Vous aimez un jeu? Vous me demandez le jeu (via mp discord ou directement dans m
 🤔 « Et elle est où l’arnaque? »
 
 👨‍🏫Ben y en a pas. Je suis abonné humble et maintenant partenaire avec eux. J’ai plusieurs années de clés cumulées que j’ai payées. Je ne peux pas jouer à tout, donc j’ai décidé de refiler le surplus. Je demande un mail pour envoyer via le site Humble la clé sur votre boite mail. Je n’utilise pas vos données perso, vous pouvez ouvrir un nouveau mail si vous êtes craintif à ce niveau.
+
+🤔 « D’accord, file les liens. »
+
+👨‍🏫>> Cette façon de parler, j’vous jure, y a plus d’jeunesse !
+
+Rend toi sur la page "Comment réclamer des clés" si sa t'intéresse vraiment.
