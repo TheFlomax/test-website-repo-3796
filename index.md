@@ -1,6 +1,3 @@
-La Clé des Shops
-============
-
 ![Logo LCDS](https://shelter.moe/system/accounts/headers/109/840/972/378/027/638/original/15f3bc52e9803e1d.jpg)
 
 ##C'est quoi La Clé des Shop ?
